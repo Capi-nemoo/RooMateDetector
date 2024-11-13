@@ -1,3 +1,6 @@
+![Copy of Copy of Copy of Untitled (Discord Profile Banner)](https://github.com/user-attachments/assets/8cca43fc-0c29-4e92-849c-8938efac6c74)
+
+
 # RoomateDetector
 
 ```
